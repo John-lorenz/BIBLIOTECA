@@ -1,1 +1,0 @@
-Ainda não foi dada nenhuma permissão de Acesso, contate o Administrador.
